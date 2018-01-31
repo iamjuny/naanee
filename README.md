@@ -1,1 +1,1 @@
-naanee is Jony's personal first project
+naanee is Juny's personal first project
